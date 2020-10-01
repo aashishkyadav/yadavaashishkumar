@@ -1,2 +1,2 @@
 # yadavaashishkumar
-Click on my website www.yadavaashishkumar.blogspot.com for contacting me
+for contacting me yadavaashishkumar.blogspot.com contact here
